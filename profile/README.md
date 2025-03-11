@@ -3,9 +3,7 @@
 ## Descriere
 Acest proiect conține un ghid detaliat despre **cele mai bune agenții OnlyFans din România pentru 2025**. Articolul clasifică cele mai remarcabile agenții din România, detaliind serviciile lor și modul în care pot ajuta creatorii de conținut să își dezvolte conturile OnlyFans. Conținutul este optimizat pentru web și este ideal pentru un blog sau site adresat creatorilor de conținut din România.
 
-![image](https://github.com/user-attachments/assets/1e903448-ed4b-4182-90e6-c4b931a92b39)
-
-
+![Black White Minimalist Connect Corporate Logo (8)](https://github.com/user-attachments/assets/6c48c6cc-0e46-4f94-88e9-b788a8ad95c3)
 
 ## Clasamentul Agențiilor
 1. **Louna's Models**  
